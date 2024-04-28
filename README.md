@@ -1,1 +1,1 @@
-# CleverConsult-consulting-website-DE-XII
+# ClevereBeratung-consulting-website-DE-XII
